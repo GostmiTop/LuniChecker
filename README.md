@@ -2,8 +2,7 @@
 Distribution of Roblox checker LuniChecker for 10 days!!!
 
 Free login details:  
-Login - GVmbIemWEC  
-Password - IdZ1f00myR  
+On Discord server - https://discord.gg/CgNcJRyYzd  
 
 The data will work for 10 days)
 
